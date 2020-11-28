@@ -1,1 +1,2 @@
-Made this as a revenge, i dont give a fuc* about gtos/towntopia anymore. not coming back to that shit so u can use skidded codes here i wont even care this isnt actually everything, probably will add in a few days more.
+Shared whole source since tootle didnt follow the rules and started selling my codes.
+RobertLTU real name is Robertas Nevoinas gonna dox him soon.
